@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marat4cheeses
-- 👀 I’m interested in web-development
+- 👀 I’m interested in much things
 - 🌱 I’m currently learning python
 - 💞️ I’m not looking to collaborate soon
 - 📫 How to reach me: stack0verfl0w: marat4cheeses // inst: yngxre // telegram: yngxre
